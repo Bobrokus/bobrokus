@@ -1,6 +1,6 @@
 # Proffesional memester
 
-### When I was younger, I lived in Detroit. I was sailing on a cruise ship and I saw a woman. She was speaking the native language so I didn't understand her.
+### "When I was younger, I lived in Detroit. I was sailing on a cruise ship and I saw a woman. She was speaking the native language so I didn't understand her." -champagne
 
 I make coconut powder
 
