@@ -1,6 +1,6 @@
 # Proffesional memester
 
-**NOTE:** *Don't worry, I will make it my README readable **one day***
+**NOTE:** *Don't worry, I will make my README readable **one day***
 
 \> Also a highly unprofessional individual at the same time 🤡
 
